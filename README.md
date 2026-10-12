@@ -1,0 +1,1 @@
+# 10_sinf_1ch_11_mavzu_YANGI
